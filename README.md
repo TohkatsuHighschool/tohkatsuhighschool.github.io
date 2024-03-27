@@ -1,0 +1,1 @@
+# tohkatsuhighschool.github.io
